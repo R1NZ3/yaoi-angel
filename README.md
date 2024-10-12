@@ -5,16 +5,18 @@
 ![376B23E4-70A6-4EB6-92C7-8D827CEC548D](https://github.com/user-attachments/assets/691dd53b-88fc-4c20-93f1-b954d784d43d)
 
 
-lennox or len, close friends + friends can call me kai / kaworu !
-keep in mind im **14** , 18+ iwec / dni at all.
+**lennox** or len, close friends + friends can call me kai or **kaworu** !
+
+
+keep in mind im **14** , 18+ iwec / ***dni*** at all.
 
 i have attachment, abandoment issues, social anxiety + anxiety in general , i also have bpd! i do overthinnk a lot, plus think im annoying sometimes thats why i go quiet and stuff.
 
 
-*yes i wont vent to anyone or anything, till told or very comfortable with.*
+**I wont vent to anyone or anything, till told or very comfortable with.**
 
 
-i hide + block freely and weirdos.
+***i hide + block freely and weirdos.***
 
 c+h and interacting is always welcome, as i am quite alone / lonely (sometimes its a choice!) :3 
 i love making new friends *!*
