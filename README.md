@@ -21,12 +21,12 @@ i love making new friends *!*
 
 
 
-***links***:
+**LINKS**:
 
  [sign atabook!](https://callmeyourangel.atabook.org/)
-[old (i forgot pass) strawpage](https://lens18tripp.straw.page/)
+---
 [RENTRY (THANKS SOL 4 THE RENTRY !!)](https://rentry.co/kai-angel)
-
+---
 
 ![IMG_5684](https://github.com/user-attachments/assets/686344ae-21b1-4af1-ba4a-44c547898d1c)
 
