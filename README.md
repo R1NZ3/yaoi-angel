@@ -16,6 +16,8 @@ gay / pansexual heh.. i loeve eveyoen, i'm transmasc, please dont use fem terms 
 
 i joke around a lot and do **not** use tone tags, tell me if you **hate** it .
 
+i **hate** talking first and **wont** talk first , please dont break our friendship because of that .
+
 
 **I wont vent to anyone or anything, till told or very comfortable with.** *i dont know how to express self i'm sorry.*
 
