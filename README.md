@@ -10,6 +10,8 @@
 
 keep in mind im **14** , *18+ iwec / ***dni*** at all.*
 
+gay / pansexual heh.. i loeve eveyoen
+
 i have attachment, abandoment issues, social anxiety + anxiety in general , i also have bpd! i do overthinnk a lot, plus think im annoying sometimes thats why i go quiet and stuff.
 
 
