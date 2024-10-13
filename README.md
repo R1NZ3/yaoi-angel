@@ -1,16 +1,18 @@
 ---
-‎ ‎ "in another words, i love you."
+‎ ‎ " Because it's my destiny to continue to live, even if it may result in the destruction of humanity. But I can also die here. Life and death are of equal value to me. Dying of your own will . "
 
 
 ![376B23E4-70A6-4EB6-92C7-8D827CEC548D](https://github.com/user-attachments/assets/691dd53b-88fc-4c20-93f1-b954d784d43d)
 
 
-**lennox** or len, close friends + friends can call me kai or **kaworu** !
+**lennox** or **len**, close friends + friends can call me **kai** or **kaworu** !
 
 
-keep in mind im **14** , 18+ iwec / ***dni*** at all.
+keep in mind im **14** , *18+ iwec / ***dni*** at all.*
 
 i have attachment, abandoment issues, social anxiety + anxiety in general , i also have bpd! i do overthinnk a lot, plus think im annoying sometimes thats why i go quiet and stuff.
+
+i joke around a lot and do not use tone tags, tell me if you hate it .
 
 
 **I wont vent to anyone or anything, till told or very comfortable with.**
