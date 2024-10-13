@@ -5,7 +5,7 @@
 ![376B23E4-70A6-4EB6-92C7-8D827CEC548D](https://github.com/user-attachments/assets/691dd53b-88fc-4c20-93f1-b954d784d43d)
 
 
-**lennox** or **len**, close friends + friends can call me **kai** or **kaworu** !
+**lennox** or **len**, close friends + friends can call me **kai** or **anything they like** !
 
 
 keep in mind im **14** , *18+ iwec / ***dni*** at all.*
