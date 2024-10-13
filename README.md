@@ -11,7 +11,7 @@
 keep in mind im **14** , *18+ iwec / ***dni*** at all.*
 
 
-gay / pansexual heh.. i loeve eveyoen, i'm transmasc, please dont use fem terms (its okay if you didnt know)
+gay heh.. i loeve eveyoen, i'm transmasc, please dont use fem terms (its okay if you didnt know)
 
 
 i joke around a lot and do **not** use tone tags, tell me if you **hate** it .
