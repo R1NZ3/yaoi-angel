@@ -12,7 +12,8 @@ keep in mind im **14** , *18+ iwec / ***dni*** at all.*
 
 i have attachment, abandoment issues, social anxiety + anxiety in general , i also have bpd! i do overthinnk a lot, plus think im annoying sometimes thats why i go quiet and stuff.
 
-i joke around a lot and do not use tone tags, tell me if you hate it .
+
+i joke around a lot and do **not** use tone tags, tell me if you **hate** it .
 
 
 **I wont vent to anyone or anything, till told or very comfortable with.**
