@@ -1,8 +1,10 @@
 ---
-‎ ‎ " Because it's my destiny to continue to live, even if it may result in the destruction of humanity. But I can also die here. Life and death are of equal value to me. Dying of your own will . "
+‎ ‎ " Because it's my destiny to continue to live , even if it may result in the destruction of humanity . "
 
 
 ![376B23E4-70A6-4EB6-92C7-8D827CEC548D](https://github.com/user-attachments/assets/691dd53b-88fc-4c20-93f1-b954d784d43d)
+
+" But I can also die here. Life and death are of equal value to me. Dying of your own will . "
 
 
 **lennox** or **len**, close friends + friends can call me **kai** or **anything they like** !
