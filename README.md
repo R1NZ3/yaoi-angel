@@ -35,6 +35,8 @@ i love making new friends *!*
 ---
 [RENTRY (THANKS SOL 4 THE RENTRY !!)](https://rentry.co/kai-angel)
 ---
+[support gaza.](https://rentry.co/hearts4gaza)
+---
 
 ---
 
