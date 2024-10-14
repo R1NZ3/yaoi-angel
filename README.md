@@ -30,13 +30,14 @@ i love making new friends *!*
 ---
 
 **LINKS**:
----
  [sign atabook!](https://callmeyourangel.atabook.org/)
----
+||
 [RENTRY (THANKS SOL 4 THE RENTRY !!)](https://rentry.co/kai-angel)
----
+||
 [support gaza.](https://rentry.co/hearts4gaza)
----
+||
+[shared rentry with sol :3](https://rentry.co/sharedbetweengays)
+
 
 ---
 
