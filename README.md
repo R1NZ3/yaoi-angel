@@ -6,6 +6,8 @@
 
 " But I can also die here. Life and death are of equal value to me. Dying of your own will . "
 
+---
+
 
 **lennox** or **len**, close friends + friends can call me **kai** or **anything they like** !
 
