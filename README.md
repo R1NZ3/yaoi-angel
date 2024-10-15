@@ -15,12 +15,12 @@
 keep in mind im **14** , *18+ iwec / ***dni*** at all.*
 
 
-gay heh.. i loeve eveyoen, i'm transmasc, please dont use fem terms (its okay if you didnt know)
+gay heh..
 
 
 i joke around a lot and do **not** use tone tags, tell me if you **hate** it .
 
-i'm **rude** jokingly, if you see me *arguing* wih someone, mainly + mostly they are my *friend* and its ***jokes.****
+i'm **rude** jokingly, if you see me *arguing* wih someone, mainly + mostly they are my *friend* and its **jokes.**
 
 i **hate** talking first and **wont** talk first , please dont break our friendship because of that .
 
@@ -40,7 +40,7 @@ i love making new friends *!*
 ||
 [RENTRY (THANKS SOL 4 THE RENTRY !!)](https://rentry.co/kai-angel)
 ||
-[support gaza.](https://rentry.co/hearts4gaza)
+[support gaza!](https://rentry.co/hearts4gaza)
 ||
 [shared rentry with sol :3](https://rentry.co/sharedbetweengays)
 
