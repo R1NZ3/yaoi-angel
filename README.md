@@ -14,7 +14,7 @@
 
 keep in mind im **14** , *18+ iwec / ***dni*** at all.*
 
-
+I ❤️ gifted and matching skins. ladies ❤️
 
 i joke around a lot and do **not** use tone tags, tell me if you **hate** it .
 
