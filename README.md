@@ -15,8 +15,6 @@
 keep in mind im **14** , *18+ iwec / ***dni*** at all.*
 
 
-gay heh..
-
 
 i joke around a lot and do **not** use tone tags, tell me if you **hate** it .
 
@@ -31,7 +29,10 @@ i **hate** talking first and **wont** talk first , please dont break our friends
 ***i hide + block freely and weirdos.***
 
 c+h and interacting is always welcome, as i am quite alone / lonely (sometimes its a choice!) :3 
+
 i love making new friends *!*
+
+i'm trying to get and make my *avoidant attachment* better i *promise*, i avoid getting close with anyone anymore.
 
 ---
 
