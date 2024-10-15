@@ -1,10 +1,11 @@
 ---
-‎ ‎ " Because it's my destiny to continue to live , even if it may result in the destruction of humanity . "
+‎ ‎ " i *really* was born to meet *you*.. "
 
 
-![376B23E4-70A6-4EB6-92C7-8D827CEC548D](https://github.com/user-attachments/assets/691dd53b-88fc-4c20-93f1-b954d784d43d)
+![295BD6D2-EA1E-4B19-99B0-A28E61CE3088](https://github.com/user-attachments/assets/63aeee16-3ba9-4d70-afaf-bf082b9b6357)
 
-" But I can also die here. Life and death are of equal value to me. Dying of your own will . "
+
+
 
 ---
 
@@ -46,8 +47,9 @@ i love making new friends *!*
 
 ---
 
-![IMG_5684](https://github.com/user-attachments/assets/686344ae-21b1-4af1-ba4a-44c547898d1c)
 
 
 
+
+![IMG_5732](https://github.com/user-attachments/assets/5e5cd83b-6a4b-4f80-9614-115975d2050e)
 
