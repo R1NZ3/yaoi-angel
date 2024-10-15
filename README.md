@@ -36,9 +36,12 @@ i'm trying to get and make my *avoidant attachment* better i *promise*, i avoid 
 
 ---
 
-**LINKS**:
+**LINKS [that u can sign :3]**:
  [sign atabook!](https://callmeyourangel.atabook.org/)
 ||
+[sign rs ^_^](https://retrospring.net/@lennxoxp)
+
+**LINKS [to check out!]**:
 [RENTRY (THANKS SOL 4 THE RENTRY !!)](https://rentry.co/kai-angel)
 ||
 [support gaza!](https://rentry.co/hearts4gaza)
