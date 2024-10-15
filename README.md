@@ -9,8 +9,9 @@
 ---
 
 
-**lennox** or **len**, close friends + friends can call me **kai** or **anything they like** !
+i go by a lot of names, most know me as **lennox (len)**, or **Kai**!
 
+nicknames + any name you want to call me is fun and okay, i love 'em! ^_^
 
 keep in mind im **14** , *18+ iwec / ***dni*** at all.*
 
@@ -22,17 +23,11 @@ i'm **rude** jokingly, if you see me *arguing* wih someone, mainly + mostly they
 
 i **hate** talking first and **wont** talk first , please dont break our friendship because of that .
 
-
-**I wont vent to anyone or anything, till told or very comfortable with.** *i dont know how to express self i'm sorry.*
-
-
 ***i hide + block freely and weirdos.***
 
 c+h and interacting is always welcome, as i am quite alone / lonely (sometimes its a choice!) :3 
 
 i love making new friends *!*
-
-i'm trying to get and make my *avoidant attachment* better i *promise*, i avoid getting close with anyone anymore.
 
 ---
 
