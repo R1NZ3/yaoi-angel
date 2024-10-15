@@ -16,6 +16,10 @@ nicknames + any name you want to call me is fun and okay, i love 'em! ^_^
 
 keep in mind im **14** , *18+ iwec / ***dni*** at all.*
 
+i drive a motorcycle, i'm a writer, rentry maker, ig nothing else..
+
+[i plan to get back on the rentry making , for now i won't and will focus on school .]
+
 I ❤️ gifted and matching skins. ladies ❤️
 
 i joke around a lot and do **not** use tone tags, tell me if you **hate** it .
