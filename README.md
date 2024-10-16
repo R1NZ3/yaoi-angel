@@ -28,7 +28,7 @@ i'm **rude** jokingly, if you see me *arguing* wih someone, mainly + mostly they
 
 i **hate** talking first and **wont** talk first , please dont break our friendship because of that .
 
-***i hide + block freely and weirdos.***
+***i hide + block freely, do not ask why i hid you or anything .***
 
 c+h and interacting is always welcome, as i am quite alone / lonely (sometimes its a choice!) :3 
 
