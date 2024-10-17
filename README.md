@@ -1,3 +1,5 @@
+#[going off mode nowadays, if i whisper you while being offmode, your special ^^]]
+
 ---
 ‎ ‎ lazy graphic ><
 ![Untitled38_20241017055655](https://github.com/user-attachments/assets/48121501-6af9-4192-ab33-70ff3f2d5610)
