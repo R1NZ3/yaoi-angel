@@ -1,47 +1,28 @@
 ---
-‎ ‎ " i *really* was born to meet *you*.. "
-
-
-![295BD6D2-EA1E-4B19-99B0-A28E61CE3088](https://github.com/user-attachments/assets/63aeee16-3ba9-4d70-afaf-bf082b9b6357)
+‎ ‎ lazy graphic ><
+![Untitled38_20241017055655](https://github.com/user-attachments/assets/48121501-6af9-4192-ab33-70ff3f2d5610)
 
 
 
 
 ---
 
+i go by many names, mostly known as len or kai ! , **you can nickname me anything i love nicknames, *i adore 'em !<3***
 
-i go by a lot of names, most know me as **lennox (len)**, or **Kai**!
+my pronouns are **he/they** !, *i dont mind and dont care if you use anything else when you didnt know.*
 
-nicknames + any name you want to call me is fun and okay, i love 'em! ^_^
+i'm *jokingly* rude and argue a lot *[[jjjjooookkkeesss...]]* , its ***mainly + mostly*** a friend!
 
-keep in mind im **14** , *18+ iwec / ***dni*** at all.*
+*keep in mind* im **14** :(.
 
-i drive a motorcycle, i'm a writer, rentry maker, ig nothing else..
-
-[i plan to get back on the rentry making , for now i won't and will focus on school .]
-
-I ❤️ gifted and matching skins. ladies ❤️
-
-i joke around a lot and do **not** use tone tags, tell me if you **hate** it .
-
-i'm **rude** jokingly, if you see me *arguing* wih someone, mainly + mostly they are my *friend* and its **jokes.**
-
-i **hate** talking first and **wont** talk first , please dont break our friendship because of that .
-
-***i hide + block freely, do not ask why i hid you or anything .***
-
-c+h and interacting is always welcome, as i am quite alone / lonely (sometimes its a choice!) :3 
-
-i love making new friends *!*
 
 ---
-
-**LINKS [that u can sign :3]**:
+**LINKS [that u can sign >_<]**:
  [sign atabook!](https://callmeyourangel.atabook.org/)
 ||
 [sign rs ^_^](https://retrospring.net/@lennxoxp)
 
-**LINKS [to check out!]**:
+**LINKS [to check out *!*]**:
 [RENTRY (THANKS SOL 4 THE RENTRY !!)](https://rentry.co/kai-angel)
 ||
 [support gaza!](https://rentry.co/hearts4gaza)
