@@ -1,4 +1,4 @@
-#[going off mode nowadays, if i whisper you while being offmode, your special ^^]]
+#[going off mode a lot or putting dni much nowadays, irl problems .]]
 
 ---
 ‎ ‎ lazy graphic ><
@@ -24,16 +24,20 @@ I ❤️ gifted and matching skins. ladies ❤️
 
 ---
 **LINKS [that u can sign >_<]**:
+
  [sign atabook!](https://callmeyourangel.atabook.org/)
 ||
 [sign rs ^_^](https://retrospring.net/@lennxoxp)
 
 **LINKS [to check out *!*]**:
-[RENTRY (THANKS SOL 4 THE RENTRY !!)](https://rentry.co/kai-angel)
-||
+
 [support gaza!](https://rentry.co/hearts4gaza)
 ||
 [shared rentry with sol :3](https://rentry.co/sharedbetweengays)
+||
+[RENTRY (THANKS SOL 4 THE RENTRY !!)](https://rentry.co/kai-angel)
+||
+[pronouns.page ><](https://en.pronouns.page/@angelz-kai)
 
 
 ---
