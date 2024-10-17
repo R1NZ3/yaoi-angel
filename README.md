@@ -17,8 +17,9 @@ i'm *jokingly* rude and argue a lot *[[jjjjooookkkeesss...]]* , its ***mainly + 
 
 *keep in mind* im **14** :(.
 
-i write, drive a motorcycle and make rentries..ig.. 
-[ i am quite lazy, sorry if i go back on a reqq... i only make rentries for friends thooo..]
+c+h always allowed, even if dni, just may not say anything, i love c+h !
+
+I ❤️ gifted and matching skins. ladies ❤️
 
 
 ---
