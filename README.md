@@ -3,10 +3,6 @@
 ---
 ‎ ‎ lazy graphic ><
 ![Untitled38_20241017055655](https://github.com/user-attachments/assets/48121501-6af9-4192-ab33-70ff3f2d5610)
-
-
-
-
 ---
 
 i go by many names, mostly known as len or kai ! , **you can nickname me anything i love nicknames, *i adore 'em !<3***
